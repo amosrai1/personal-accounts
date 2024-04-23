@@ -1,7 +1,7 @@
 # subject starts up personal-accounts ecobudget  
  
 
-millions trillions and billion trillions currencies branch numbers large queries USD cost define transactions  
+millions trillions and billion trillions currencie large queries num branch USD cost define transactions  
 
 facebook
 
