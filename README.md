@@ -1,4 +1,17 @@
 # subject starts up personal-accounts ecobudget  
  
 
-millions trillions and billion trillions currencies USD the large queries cost numbers 
+millions trillions and billion trillions currencies branch numbers large queries USD cost define transactions  
+
+facebook
+
+google
+
+mircosort
+
+apple
+
+
+
+
+buys organizations sociatical customers for companies entire productions service lines premium free service algorithms way  
