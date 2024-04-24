@@ -14,4 +14,4 @@ apple
 
 
 
-buys organizations sociatical customers for companies entire productions service lines premium free service algorithms way  
+cuurrencies organizations buys sociatical customers for companies entire productions service lines premium free service algorithms way  
