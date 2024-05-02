@@ -1,7 +1,9 @@
-# subject starts up personal-accounts ecobudget  
+# subject starts with personal-accounts ecosystems  
  
 
-millions trillions and billion trillions currencies branch numbers large queries USD cost define transactions  
+quintrillion large branch of amounts  
+
+define transactions  
 
 facebook
 
